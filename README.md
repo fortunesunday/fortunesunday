@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my learning journey
 - 📫 How to reach me: www.linkedin.com/in/fortune-richman
 - 😄 Pronouns:(SHE/HER)
-- ⚡ Fun fact: I'm cool
+- ⚡ Fun fact: I loveeeeeeee fooooooddddddd
